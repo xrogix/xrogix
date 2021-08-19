@@ -1,6 +1,5 @@
 ### Best job i ever had 🚀
 
-
 - 🔭 I’m currently working on Zygo
 - 🌱 I’m currently learning Architecture
 
